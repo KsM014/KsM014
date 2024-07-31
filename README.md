@@ -1,4 +1,4 @@
-**KAYQUI MELO**🇧🇷
+**KAYQUI MELO**🇧🇷 🥇
 
 **Estou*** estudando _Alura_
 
